@@ -1,0 +1,3 @@
+- 👋 Hi, we're @takeupspacenft
+- 👀 An NFT prokject determine to create social change. 
+- ✊🏽 We are providing Changemakers with the education, mentoring, support network and funding to become the net generation of diverse leaders.
